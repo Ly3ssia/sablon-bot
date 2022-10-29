@@ -1,1 +1,1 @@
-# syron-x
+## 30 starda sizlerle birlikte :)
