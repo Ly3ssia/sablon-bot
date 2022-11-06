@@ -1,1 +1,1 @@
-## 30 starda sizlerle birlikte :)
+## 100 starda sizlerle birlikte :)
